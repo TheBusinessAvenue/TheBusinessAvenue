@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TheBusinessAvenue
+- 👀 I’m interested in creative writing
+- 🌱 I’m currently learning customer service and product management
+- 💞️ I’m looking to collaborate on writing about product management
+- 📫 How to reach me @sabeormsby@gmail.com
